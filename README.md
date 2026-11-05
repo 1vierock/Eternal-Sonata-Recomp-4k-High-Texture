@@ -19,7 +19,7 @@ A high-resolution 4K texture project for **Eternal Sonata Recomp**.
 ![Eternal Sonata 4K](https://i.postimg.cc/FzjqVHqD/eternalsonata-Screenshot-2026-10-21-08-29-46-89.png)
 
 ![Eternal Sonata 4K](https://i.postimg.cc/brQM9wMV/eternalsonata-Screenshot-2026-10-21-09-59-31-82.png)
-
+DL: https://vik1ngfile.site/f/85WABcvSMF
 ## Credits
 ## Special Thanks
 
